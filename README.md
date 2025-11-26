@@ -1,3 +1,5 @@
+**If you have any questions about this app, you can contact us at: Email: info@helloniklas.com**
+
 Privacy Policy for Thousand & One Bedtimes
 
 Thousand & One Bedtimes (“the App”) is designed to provide personalised bedtime stories using on-device machine learning. We take your privacy seriously. This Privacy Policy explains how we handle your information.
